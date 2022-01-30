@@ -1,0 +1,1 @@
+# termometor18b20
